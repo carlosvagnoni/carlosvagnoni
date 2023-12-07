@@ -1,1 +1,1 @@
-![banner](https://github.com/carlosvagnoni/carlosvagnoni/assets/106275103/25f819d4-d977-4f65-b2f9-55bef007dc1a)
+![banner2](https://github.com/carlosvagnoni/carlosvagnoni/assets/106275103/0462d47c-1b6f-4902-9878-dd09adc253d8)
